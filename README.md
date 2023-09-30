@@ -1,2 +1,1 @@
-Ralph Jan Gallegos
-Iponan
+Ralph Jan Gallegos - BSIT
